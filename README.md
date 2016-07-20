@@ -2,7 +2,8 @@
 Daihatsu Xenia adalah nama mobil kategori MPV yg di desain & diproduksi dengan oleh Astra Daihatsu Motor. Mobil ini dijual bersama dua brand adalah Daihatsu Xenia dijual oleh Astra Daihatsu Motor. 
 Daihatsu Xenia yaitu salah satu MPV lumayan lebih murah yg diperkenalkan oleh Daihatsu kurang lebih pada thn 11 Desember 2003 bersamaan dengan munculnya Toyota Avanza. Ke-2 mobil ini diproduksi sbg hasil hubungan kerjasama dari ke-2 pembuat demi buat mendapati pangsa pasar dalam segmen mobil keluarga kelas bawah. Amat Terbukti, bersama adanya system kerja sama ini, ke-2 pembuat memperoleh hasil yg amat sangat demikian memuaskan.
 
-interior mobil daihatsu xenia 
+<a href="http://www.daihatsu.co.id/">Mobil Keluarga Daihatsu</a>
+
 Eksteriornya pula akan dikenali dgn gampang dari model grill horizontal banyaknya 3 baris & bumper depan yg kelihatan pass polos juga minim lekukan. Sedangkan di sektor belakang, stoplamp yg diusung tetap berupa model kristal bergaris-gris buram. Letak lampu sein & lampu mundur berada dalam 1 bingkai di atas & buat lampu rem terpisah di sektor bawah. 
 Interiornya beranjak ke dalam lokasi kabin, Kamu cuma disuguhi oleh mutu interior lumayan murah dimana-mana. Bahan yg dimanfaatkan merupakan berupa plastik keras. Pemangkasan feature yg dilakukan pula pass tidak sedikit khususnya trim menengah & bawah. Maklum saja, seluruh factor ini bersetujuan buat memangkas anggaran produksi sebesar barangkali demi mengejar harga biar akan beradu di pasaran. Posisi setirnya tetap belum adjustable, ingin tidak ingin Kamu dapat merasa mengemudikan suatu mobil angkot berlabel MPV. Berita baiknya, ergonomi kabin tergolong teramat keren sebab dikursi baris ke3 sanggup dilipat ke depan. Bersama demikian, Kamu akan mengambil tidak sedikit beberapa barang bawaan disaat kursi ke3 tak difungsikan atau di gunakan. 
 
